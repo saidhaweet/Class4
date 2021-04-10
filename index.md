@@ -9,11 +9,11 @@
 **القناة** [Link](https://youtu.be/czU4FfZN-eY)
 
 
-**المحاضرة 1**[Link](https://drive.google.com/drive/folders/1tixrkX2HIRdVdBbZvhl6-IHkVa67ht93?usp=sharing)
+**المحاضرة 1** [Link](https://youtu.be/czU4FfZN-eY)
 
-**المحاضرة 2**[Link](https://youtu.be/-MkTMk3HKQ0)
+**المحاضرة 2** [Link](https://youtu.be/-MkTMk3HKQ0)
 
-**المحاضرة 3**[Link](https://youtu.be/e3hWo2QRiDM)
+**المحاضرة 3** [Link](https://youtu.be/e3hWo2QRiDM)
 
 ### المراجع
 
