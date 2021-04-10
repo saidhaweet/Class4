@@ -6,7 +6,7 @@
 
 ## المحاضرات المسجلة
 
-[**القناة**](https://youtu.be/czU4FfZN-eY)
+[**القناة**](https://www.youtube.com/channel/UCfDPuU7xdxcaAQUhCTcetSg/playlists)
 
 
 [**المحاضرة 1**](https://youtu.be/czU4FfZN-eY)
