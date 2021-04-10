@@ -9,17 +9,17 @@
 [**القناة**](https://youtu.be/czU4FfZN-eY)
 
 
-**المحاضرة 1** [Link](https://youtu.be/czU4FfZN-eY)
+[**المحاضرة 1**](https://youtu.be/czU4FfZN-eY)
 
-**المحاضرة 2** [Link](https://youtu.be/-MkTMk3HKQ0)
+[**المحاضرة 2**](https://youtu.be/-MkTMk3HKQ0)
 
-**المحاضرة 3** [Link](https://youtu.be/e3hWo2QRiDM)
+[**المحاضرة 3**](https://youtu.be/e3hWo2QRiDM)
 
 ### المراجع
 
-[Link](https://drive.google.com/drive/folders/1ZPxNkPXb9dASLYMgUt8j9o1ewfg_mxCo?usp=sharing )لينك لتحميل كل المراجع
+(https://drive.google.com/drive/folders/1ZPxNkPXb9dASLYMgUt8j9o1ewfg_mxCo?usp=sharing )[لينك لتحميل كل المراجع]
 
 
 ### كل الملفات
 
-[Link](https://drive.google.com/drive/folders/1tixrkX2HIRdVdBbZvhl6-IHkVa67ht93?usp=sharing)فى هذا اللينك ستجد كل الملفات الخاصة بالمادة
+(https://drive.google.com/drive/folders/1tixrkX2HIRdVdBbZvhl6-IHkVa67ht93?usp=sharing)[فى هذا اللينك ستجد كل الملفات الخاصة بالمادة]
