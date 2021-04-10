@@ -17,9 +17,11 @@
 
 ### المراجع
 
-(https://drive.google.com/drive/folders/1ZPxNkPXb9dASLYMgUt8j9o1ewfg_mxCo?usp=sharing )[لينك لتحميل كل المراجع]
+[لينك لتحميل كل المراجع](https://drive.google.com/drive/folders/1ZPxNkPXb9dASLYMgUt8j9o1ewfg_mxCo?usp=sharing )
+
+
 
 
 ### كل الملفات
 
-(https://drive.google.com/drive/folders/1tixrkX2HIRdVdBbZvhl6-IHkVa67ht93?usp=sharing)[فى هذا اللينك ستجد كل الملفات الخاصة بالمادة]
+[فى هذا اللينك ستجد كل الملفات الخاصة بالمادة](https://drive.google.com/drive/folders/1tixrkX2HIRdVdBbZvhl6-IHkVa67ht93?usp=sharing)
