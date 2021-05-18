@@ -17,6 +17,8 @@
 
 [**المحاضرة 4**](https://youtu.be/MPIDd7j-Ay0)
 
+[**المحاضرة 5**](https://youtu.be/VR_w3YHaMas)
+
 
 ## المراجع
 
